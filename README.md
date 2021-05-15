@@ -9,6 +9,7 @@
 
 
 
-![Madeline from Celeste and her shadow spining around.](https://gaming.tumblr.com/post/181082392011/indie-game-spotlight-celeste-were-back-this)
+![Madeline from Celeste looking the sun from to top of the mountain.](https://i.imgur.com/wi8jmvS.gif)
+
 
 
