@@ -1,16 +1,14 @@
-### Hi there 👋
+# Hi! I'm Rafaela :smile:
 
-<!--
-**Siglyane/Siglyane** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- I'm 26 years old, from RS/Brasil
+- I'm currently studying Java and working on personal projects to update my repository soon.
+- Fun fact: Really into indie games and RPG.
+- I'm in the middle of adventure, i'm changing my carrer path. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+![Madeline from Celeste and her shadow spining around.](https://gaming.tumblr.com/post/181082392011/indie-game-spotlight-celeste-were-back-this)
+
+
