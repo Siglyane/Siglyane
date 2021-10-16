@@ -9,8 +9,8 @@
 
 
 
+<img src="https://i.imgur.com/wi8jmvS.gif" width="500"  />
 
-![Madeline from Celeste looking the sun from to top of the mountain.](https://i.imgur.com/wi8jmvS.gif)
 
 
 
